@@ -1,0 +1,2 @@
+# premium-form-carve-001-foam-form-carving-body-mold
+Struggling to organize your foam carving projects, track material inventory, and document your body mold designs in one place? The Foam Form Carving &amp; Body Mold Craft Studio is a fully-featured Notion template built specifically for form-carvers who need a professional workflow system.  This template eliminates scattered notes, lost project files,
